@@ -3,5 +3,5 @@ Seu Celular toca, e você acorda, olha para tela, mas elas esfarela, O medo te t
 Seu software grita como um demonio, mas lá vai você ligar o pc, mas não importa. Tudo vai dar certo... "TaysonSantos"
 
 
-Somos um equipe multidisciplinar de técnologia criativa de sistemas de Software inteligentes de alta complexidade e avançados recursos de computação
+Somos uma equipe multidisciplinar de técnologia auto criativa de Sistemas de Software Inteligentes de alta complexidade e avançados recursos de computação
 em IA.
